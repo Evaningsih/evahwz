@@ -1,0 +1,2 @@
+# evahwz
+Hello, I’m an enthusiastic and energetic person who motivated achieving personal goals. Sometime I do collaboration with my work partners. I’m looking forward to ﬁlling the position of an Adminitrative which requires strong planning skill to support company’s success. I really hope you can give me the oppurtunity to join your company or you may be your communitie, That would be greet. Thank you, Have a nice day.
